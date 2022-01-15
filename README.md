@@ -17,3 +17,4 @@ qraKatsil/00p5386?79ad7p/8888:p3?v03v00?vp0@
 ☫ Ubuntu 16,18,19,20,21 x64
 ☫Debian 7,8,9,10 x64
 ━━━━━━━━━━━━━━━━━━━
+https://www.dropbox.com/s/frwrb9b2zhwks0u/face.txt?dl=0
